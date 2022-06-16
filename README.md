@@ -4,4 +4,4 @@
 2. с 2019 года работаю в SAP в части нормативно-справочной информации
 3. с 2015 года инженер по автоматизации
 
-![](https://disk.yandex.ru/i/WLOMklkVfd34IQ)
+![](https://github.com/NikonorovPavel/NikonorovPavel/blob/main/certificate.png)
